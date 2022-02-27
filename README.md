@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ThomasMannKenbun, AI Solution Architect and Cofounder of KENBUN IT AG
+- 👀 I’m interested in AI Technology, especially processing natural speech.
+- 📫 How to reach me? visit wwww.kenbun.de
